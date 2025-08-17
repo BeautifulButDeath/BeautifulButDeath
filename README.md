@@ -20,3 +20,5 @@ PLEASE LET ME KNOW IF I'M A LITTLE ANNOYING OR ANYTHING. I welcome feedback from
 𝐓𝐘𝐓𝐘𝐒𝐌𝐌𝐌𝐌 𝐅𝐎𝐑 𝐑𝐄𝐀𝐃𝐈𝐍𝐆 𝐌𝐘 𝐈𝐍𝐓𝐑𝐎𝐃𝐔𝐂𝐓𝐈𝐎𝐍 !! <𝟑
 
 <a href="https://media1.tenor.com/m/STCUfNCwzCgAAAAC/azuretime-azuretime-forsaken.gif"><img align="center" src="https://media1.tenor.com/m/STCUfNCwzCgAAAAC/azuretime-azuretime-forsaken.gif" height="200" /></a>
+
+⛔ Doing smth or semi-afk | 🌙 Completely AFK
