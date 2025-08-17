@@ -21,4 +21,4 @@ PLEASE LET ME KNOW IF I'M A LITTLE ANNOYING OR ANYTHING. I welcome feedback from
 
 <a href="https://media1.tenor.com/m/STCUfNCwzCgAAAAC/azuretime-azuretime-forsaken.gif"><img align="center" src="https://media1.tenor.com/m/STCUfNCwzCgAAAAC/azuretime-azuretime-forsaken.gif" height="200" /></a>
 
-⛔ Doing smth or semi-afk | 🌙 Completely AFK
+      🟢 Online | ⛔ Semi-afk | 🌙 Completely AFK      
