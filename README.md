@@ -6,7 +6,8 @@
  ₊˚ ‿︵‿︵୨୧ · · ♡ · · ୨୧‿︵‿︵ ˚₊
 
 I might be a bit awkward and quiet person, but I'm actually a friendly and sweet person once you get to know me well !! <a href="https://img1.picmix.com/output/stamp/normal/5/6/1/8/2758165_0c00e.png" target="blank"><img align="center" src="https://img1.picmix.com/output/stamp/normal/5/6/1/8/2758165_0c00e.png" height="20" /></a>
-Usually Afk/off-tab, so whisp me if ya wanna talk !! Feel free for C*H on Pony Town unless w my pooks or friends 0_o DNC / INSP MY COS & OC (not heavy)
+
+Usually Afk/off-tab, so whisp me if ya wanna talk !! Feel free for C*H on Pony Town unless with my pookies or friends!! DNC / INSP MY COS & OC (not heavy)
 
 Please, don't be afraid to interact with me. I'm a chill and calm person. I don't bite, I promise <a href="https://img1.picmix.com/output/stamp/normal/3/9/2/9/2759293_18c89.png" target="blank"><img align="center" src="https://img1.picmix.com/output/stamp/normal/3/9/2/9/2759293_18c89.png" height="20" /></a>
 
