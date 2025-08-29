@@ -24,4 +24,4 @@ PLEASE LET ME KNOW IF I'M A LITTLE ANNOYING OR ANYTHING. I welcome feedback from
 ⠀ ⠀ ⠀ ⠀ ⠀ ⠀
 
 
-⠀ ⠀ ⠀ ⠀ ⠀ ⠀ [![Visitors](https://api.visitorbadge.io/api/visitors?path=4ve_ria&countColor=%23263759&style=plastic&labelStyle=lower)](https://visitorbadge.io/status?path=4ve_ria)
+⠀ ⠀ ⠀ ⠀ ⠀ ⠀[![Visitors](https://api.visitorbadge.io/api/visitors?path=4ve_ria&label=Views&countColor=%23ba68c8&style=plastic)](https://visitorbadge.io/status?path=4ve_ria)
