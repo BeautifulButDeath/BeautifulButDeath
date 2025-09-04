@@ -19,9 +19,9 @@ PLEASE LET ME KNOW IF I'M A LITTLE ANNOYING OR ANYTHING. I welcome feedback from
 <a href="https://media1.tenor.com/m/STCUfNCwzCgAAAAC/azuretime-azuretime-forsaken.gif"><img align="center" src="https://media1.tenor.com/m/STCUfNCwzCgAAAAC/azuretime-azuretime-forsaken.gif" height="200" /></a>
 
       🟢 Online | ⛔ Semi-afk | 🌙 Completely AFK      
+ ⠀ ⠀ ⠀
 
 
-⠀ ⠀ ⠀ ⠀ ⠀ ⠀
 
 
-⠀ ⠀ ⠀ ⠀ ⠀ ⠀[![Visitors](https://api.visitorbadge.io/api/visitors?path=4ve_ria&label=Views&countColor=%23ba68c8&style=plastic)](https://visitorbadge.io/status?path=4ve_ria)
+⠀ ⠀ ⠀ ⠀ . ๑[![Visitors](https://api.visitorbadge.io/api/visitors?path=4ve_ria&label=%E2%99%A1&labelColor=%23ba68c8&countColor=%23555555&style=plastic&labelStyle=upper)](https://visitorbadge.io/status?path=4ve_ria)๑ .
